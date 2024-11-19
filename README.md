@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on with professionals to keep learning and developing new solutions.
 - 📫 How to reach me: sirecourage@gmail.com
 - 😄 Pronouns: ... He
-- ⚡ Fun fact: Love teaching
+- ⚡ Fun fact: Loves teaching
 
 <!---
 SireCourage001/SireCourage001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
